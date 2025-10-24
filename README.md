@@ -5,7 +5,7 @@
 outlook账号密码：
 
 - lanieklp@outlook.com
-- Klp920516.
+- kong1992
 
 ZFT账号：
 - VX：Frank_zhang0
